@@ -1,3 +1,4 @@
+![Black and Green Typographical Green Energy Logo (1)](https://github.com/user-attachments/assets/8a62cc50-e2b0-4d80-8406-f79b4ada04d0)
 ## Hi there 👋
 
 <!--
